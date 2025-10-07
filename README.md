@@ -1,4 +1,4 @@
-i code like shit but who cares
+no
 
 <!---
 javertus/javertus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
